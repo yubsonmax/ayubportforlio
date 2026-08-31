@@ -1,0 +1,1 @@
+Put your personal photo here as profile.jpg.
